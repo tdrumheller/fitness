@@ -1,5 +1,5 @@
 # Daily Stretching
-_Source: Deskbound, Kelly Starret, Pg 240_
+_Source: Deskbound, Kelly Starret, Pg 240 (with convenience mods)_
 
 ## Goals
 * 15 Minutes
@@ -19,10 +19,9 @@ _Source: Deskbound, Kelly Starret, Pg 240_
   1. Keeping back flush to floor, pull foot towards head, and straighten leg
   1. Floss by bending/straightening
   1. Move side to side, finding tight spots
-* __Trap and First Rib smash__ - 2 minutes/side - 
-  1. Nestle lacrosse ball between base of neck and trap. 
-  1. Pin ball in place against wall
-  1. drive weight into the ball, contract by engaging trap/shoulder
-  1. After a few conteractions, rais arm overhead, move hand befind back
-  1. Also gently pull head away from ball, keeping pressure on ball
-  1. Lower upper buody, allow ball to roll over trap
+* __Banded First Rib__ - 2 minutes/side - 
+_Becoming a Supple Leopard pg 308_
+  1. Grip ball and band in one hand, put over shoulder like bag
+  2. Holding in band/ball in one hand, hook under opposite foot
+  3. Stand, adjust ball so it's in first rib
+  4. Raise arm, externally rotate, and turn head away. Contract, relax, drop, lower to tack; do arm circles, move arm around, hit the sticky parts
