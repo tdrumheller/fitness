@@ -14,11 +14,11 @@ _Source: Deskbound, Kelly Starret, Pg 240_
   * Side to side - Sit upand roll horizontally over roller
   * Overhead - Stretch arms overhead, keep abs tight. Lock thumbs, raise arms towards cieling and arch over roller
 * __Couch Stretch__ - 2 Minutes each side - Put leg behind on couch or wall, keep shin vertical as possible. Squeeze glute. Stetch for a minute, then raise torso to vertical
-* __Banded Hamstring Floss__ - 2minutes/side - 
-  1. Hook leg through a band, wrapping around upper hip
-  1. bend over into bear crawl, and walk out. 
-  1. Assume sprinter's stance, with free leg in front. Don't round back, use chair or stool if needed.
-  1. Straighten/release banded leg, drive hips back
+* __Classic Hamstring Stretch__ - 2minutes/side - 
+  1. Loop band around bottom of foot
+  1. Keeping back flush to floor, pull foot towards head, and straighten leg
+  1. Floss by bending/straightening
+  1. Move side to side, finding tight spots
 * __Trap and First Rib smash__ - 2 minutes/side - 
   1. Nestle lacrosse ball between base of neck and trap. 
   1. Pin ball in place against wall
