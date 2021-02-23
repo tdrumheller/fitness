@@ -5,7 +5,7 @@ _Source: Deskbound, Kelly Starret, Pg 240 (with convenience mods)_
 * 15 Minutes
 * Focus
   * Open hips
-  * Engage PChain
+  * Open Hammies
   * Stretch back
   * Stretch shoulders
 
